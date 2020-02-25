@@ -7,3 +7,6 @@ Je suis vraiment désolé ne prend pas ça pour un manque de respect mais je n'a
 
 Cordialement,
 Nicolas Chambon, B3 C2
+
+
+PS : Oui j'abuse j'ai écrit désolé avec 'ais' !
